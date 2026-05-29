@@ -5,4 +5,4 @@ straw: https://jellybunnybear.straw.page/
 ata: https://jellybunnybear.atabook.org/
 `
 `
-<img width="1006" height="741" alt="Image" src="https://github.com/user-attachments/assets/0203eea7-1fca-42d5-9194-dcd1580463b1" />
+<img width="498" height="239" alt="Image" src="https://github.com/user-attachments/assets/a68c724e-fd97-4d77-9498-395f64106e68" />
