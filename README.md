@@ -3,6 +3,6 @@
   
  <p></p>
 
-<p align="center"> [ata](https://jellybunnybear.ata.org)⠀⠀⠀⠀[straw](https://jellybunnybear.straw.page)⠀⠀⠀⠀
+[ata](https://jellybunnybear.ata.org)⠀⠀⠀⠀[straw](https://jellybunnybear.straw.page)⠀⠀⠀⠀
  
 <p align="center"><img width="498" height="305" alt="Image" src="https://github.com/user-attachments/assets/478b6c9c-2bcf-41a7-86f4-57b46c53f964" />
