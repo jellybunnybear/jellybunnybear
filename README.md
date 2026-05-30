@@ -11,7 +11,7 @@
  <p align="center">─── ꪆৎ ───
  <p align="center">infp-t ♡ any prns
  <p align="center">burmese˙ ₊˚ april 14
- <p align="center">i am underage, do not be inappropriate with me if youre 18+ 🪽.˚✧
+ <p align="center">feel free to c+h 🪽.˚✧
  <p align="center">───────
 
 <p align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ce204d2b-b9d3-43b0-931b-7cd932a14bd2" />
