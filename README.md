@@ -7,7 +7,7 @@
  
  <p align="center"><img width="498" height="305" alt="Image" src="https://github.com/user-attachments/assets/478b6c9c-2bcf-41a7-86f4-57b46c53f964" />
 
- [ata](https://jellybunnybear.atabook.org)⠀⠀⠀⠀[straw](https://jellybunnybear.straw.page)⠀⠀⠀⠀[tiktok](https://www.tiktok.com/@jellybunnybear_)
+ <p align="center">[ata](https://jellybunnybear.atabook.org)⠀⠀⠀⠀[straw](https://jellybunnybear.straw.page)⠀⠀⠀⠀[tiktok](https://www.tiktok.com/@jellybunnybear_)
 
 <p align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ce204d2b-b9d3-43b0-931b-7cd932a14bd2" />
 
