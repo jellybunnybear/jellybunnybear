@@ -6,7 +6,8 @@
  <p></p>
  
  <p align="center"><img width="498" height="305" alt="Image" src="https://github.com/user-attachments/assets/478b6c9c-2bcf-41a7-86f4-57b46c53f964" />
-
+   
+<p align="center">───────
  <p align="center">   ∙˙•„ i want your lips like on mine ! “ ིྀ∿˙∘
  <p align="center">─── ꪆৎ ───
  <p align="center">infp-t ♡ any prns <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/cf68a6c2-c3a1-447d-9b1a-0a3ecb52c869" />
