@@ -10,7 +10,7 @@
  <p align="center">   ∙˙•„ i want your lips like on mine ! “ ིྀ∿˙∘
  <p align="center">─── ꪆৎ ───
  <p align="center">infp-t ♡ any prns <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/cf68a6c2-c3a1-447d-9b1a-0a3ecb52c869" />
- <p align="center">burmese˙ ₊˚ april 14
+ <p align="center">burmese˙ ₊˚ april 14 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/085651cb-a7bd-4163-9311-aa9ee6f6eb0f" />
  <p align="center">feel free to c+h 🪽.˚✧
  <p align="center">───────
 
