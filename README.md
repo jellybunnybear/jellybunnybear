@@ -13,7 +13,11 @@
  <p align="center">feel free to c+h 🪽.˚✧ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/085651cb-a7bd-4163-9311-aa9ee6f6eb0f" />
  <p align="center">───────
 
-<p align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ce204d2b-b9d3-43b0-931b-7cd932a14bd2" />
+<p align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d693aad5-1812-4e1e-aa3a-1317ed20940f" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/247281e0-28c4-4c7b-996b-44c937bd6aca" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/ce204d2b-b9d3-43b0-931b-7cd932a14bd2" />
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6daa57d5-279d-4a6b-b0cc-5dab4edc0873" />
 
