@@ -53,4 +53,6 @@
 
 <p align="center"><img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/e4f4ab44-ba31-4647-a5f2-c65524067d8e" />
 
-<p align="center"><br> [![Last.fm Obsession](https://lastfm-github-profile.vercel.app/api?user=jellybunnybear&bg=ebccd0&mode=recent)](https://www.last.fm/user/jellybunnybear)
+<p align="center">
+  
+  <br> [![Last.fm Obsession](https://lastfm-github-profile.vercel.app/api?user=jellybunnybear&bg=ebccd0&mode=recent)](https://www.last.fm/user/jellybunnybear)
