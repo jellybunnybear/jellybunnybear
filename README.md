@@ -55,4 +55,4 @@
 
 <p align="center">
   
-  <br> [![Last.fm Obsession](https://lastfm-github-profile.vercel.app/api?user=jellybunnybear&bg=ebccd0&mode=recent)](https://www.last.fm/user/jellybunnybear)
+  <br><p align="center"> [![Last.fm Obsession](https://lastfm-github-profile.vercel.app/api?user=jellybunnybear&bg=ebccd0&mode=recent)](https://www.last.fm/user/jellybunnybear)
