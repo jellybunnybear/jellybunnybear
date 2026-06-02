@@ -13,7 +13,11 @@
  <p align="center">feel free to c+h 🪽.˚✧ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/085651cb-a7bd-4163-9311-aa9ee6f6eb0f" />
  <p align="center">───────
 
-<p align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d693aad5-1812-4e1e-aa3a-1317ed20940f" />
+<p align="center"><img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/6589e9c3-9947-435b-b3fd-ea548c827958" />
+
+<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/1fdc16ad-ee0c-40e3-b374-03e49eb7caeb" />
+
+<img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/d693aad5-1812-4e1e-aa3a-1317ed20940f" />
 
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/247281e0-28c4-4c7b-996b-44c937bd6aca" />
 
@@ -50,7 +54,6 @@
 <img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/4ce04b1f-972c-40a5-8844-1d827308eb9e" />
 
 <img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/9c663560-c150-4af8-b8f7-3d32e8c66105" />
-
 <p align="center"><img width="150" height="150" alt="Image" src="https://github.com/user-attachments/assets/e4f4ab44-ba31-4647-a5f2-c65524067d8e" />
 
 <p align="center">
