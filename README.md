@@ -13,10 +13,9 @@
  <p align="center">feel free to c+h 🪽.˚✧ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/085651cb-a7bd-4163-9311-aa9ee6f6eb0f" />
  <p align="center">───────
 
- [strawpage](https://jellybunnybear.straw.page)                      [atabook](https://jellybunnybear.atabook.org)
+  <p align="center">random stamps wow,,, :
 
-<p align="center">  
-<img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/3e36f2dd-08e7-4c14-a16a-5c45c2e852c6" />
+<p align="center">  <img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/3e36f2dd-08e7-4c14-a16a-5c45c2e852c6" />
 
 <img width="101" height="57" alt="Image" src="https://github.com/user-attachments/assets/1143ed89-1cf2-453e-8fe0-2e61d6765459" />
 
