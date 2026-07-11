@@ -3,7 +3,7 @@
   
  <p></p>
  
- <p align="center"><img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/83700fe6-a927-4b50-b761-64322a4f5db6" />
+ <p align="center"><img width="498" height="280" alt="Image" src="https://github.com/user-attachments/assets/5b581ea8-2e5c-45b3-951d-6780515f21c7" />
    
 <p align="center">───────
  <p align="center">   ∙˙•„ i want your lips like on mine ! “ ིྀ∿˙∘
