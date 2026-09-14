@@ -6,6 +6,8 @@
   
 　<p align="center"> [straw](https://jellybunnybear.straw.page)  ${\textsf{\color{#cfd1d0} |}}$ [ata](https://jellybunnybear.atabook.org)  ${\textsf{\color{#cfd1d0} |}}$ [guns](https://guns.lol/jellybunnybear)
 
+<br>
+<br>
 
  <p align="center">─── ♡ ───
  
