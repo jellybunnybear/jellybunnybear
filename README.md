@@ -1,4 +1,4 @@
-<p align="center"><img width="736" height="759" alt="Image" src="https://imglink.cc/i/h9uH51XRNi" />
+<p align="center"><img width="736" height="759" alt="Image" src="https://files.catbox.moe/p91spf.webp" />
 
 <p align="center"><small>art by sg_yskim on tumblr</small>
 
