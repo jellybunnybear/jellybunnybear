@@ -1,4 +1,4 @@
-<p align="center"><img width="650" height="650" alt="Image" src="https://github.com/user-attachments/assets/afaa9ce6-9c3d-4f5a-8cce-b32eb7e0e140" />
+<p align="center"><img width="650" height="650" alt="Image" src="https://imglink.cc/i/h9uH51XRNi" />
 
 <p align="center"><small>art by sg_yskim on tumblr</small>
 
