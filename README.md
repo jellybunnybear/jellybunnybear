@@ -1,6 +1,6 @@
 <p align="center"><img width="736" height="759" alt="Image" src="https://files.catbox.moe/p91spf.webp" />
 
-<p align="center"><small>art by sg_yskim on tumblr</small>
+<p align="center"><small>art by sg_yskim on insta</small>
 
  <p align="center">─── ♡ ───
   
